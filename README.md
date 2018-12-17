@@ -1,1 +1,1 @@
-# Alzheimer
+# Alzheimer Group
